@@ -17,5 +17,5 @@
 ### Me segue nas redes abaixo!
  
 <div> 
- 
+  <p>Ainda não adicionei nenhuma rede social, mas em breve adicionarei 🚀</p>
 </div>
